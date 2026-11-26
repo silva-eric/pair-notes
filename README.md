@@ -1,2 +1,2 @@
 # pair-notes
-Favorite food: ____
+Favorite food: pilau
