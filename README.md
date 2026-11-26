@@ -1,2 +1,2 @@
 # pair-notes
-Favorite food: ugali
+Favorite food: ugali & pilau
