@@ -2,4 +2,4 @@
 
 Favorite place: Nyamarambe
 
-Favorite hobby: exploring
+Favorite hobby: exploring new places around Nairobi
