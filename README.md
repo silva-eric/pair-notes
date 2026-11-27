@@ -3,3 +3,5 @@
 Favorite place: Nyamarambe
 
 Favorite hobby: exploring new places around Nairobi
+
+Rule test
