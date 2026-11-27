@@ -6,4 +6,4 @@ Favorite hobby: exploring new places around Nairobi
 
 Rule test
 
-Favorite subject: ____
+Favorite subject: Maths, because I like solving puzzles
